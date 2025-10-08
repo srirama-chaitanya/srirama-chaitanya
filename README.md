@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Srirama Chaitanya Devulapalli!
 
-🔗 [Visit My GitHub](https://github.com/sriramachaitanyadevulapalli)
+🔗 [LinkedIn](https://www.linkedin.com/in/srirama-chaitanya-devulapalli)
 
 ---
 
