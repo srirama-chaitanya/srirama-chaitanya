@@ -18,7 +18,7 @@
 
 ## 🤝 Connect with Me
 
-📫 Reach me at **[sriramachaitanyadevulapalli@gmail.com](mailto:sriramachaitanyadevulapalli@gmail.com)**
+📫 Reach me at **[sriramchaitanya06@gmail.com](mailto:sriramchaitanya06@gmail.com)**
 💬 Let’s collaborate on open-source, AI-driven, or full-stack projects!
 🌍 Always open to new ideas and meaningful tech discussions.
 
