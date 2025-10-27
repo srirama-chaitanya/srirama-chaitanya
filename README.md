@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Srirama Chaitanya Devulapalli!
 
-🔗 [Resume](https://drive.google.com/file/d/1zubDOI35gfDgJvHZRMXekKgaN2BusfP4/view)
+🔗 [Resume](https://drive.google.com/file/d/1ZZLGXfwy3o7Ush66PPtJrXWDGe8Lt_G9/view)
 
 ---
 
